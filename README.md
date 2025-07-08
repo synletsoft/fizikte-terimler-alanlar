@@ -1,2 +1,0 @@
-# fizikte-terimler-alanlar
-
